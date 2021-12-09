@@ -1,0 +1,1 @@
+A shiny object catches your eye in a dusty crate...it seems to be a small piece of some metal object. A key, maybe? If you can find and reunite it with it's other pieces, it is said that the key they make will unlock the next piece of your journey.
